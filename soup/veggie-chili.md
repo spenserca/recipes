@@ -22,7 +22,8 @@ INGREDIENTS
 - 2 teaspoons ground cumin
 - 1 ½ teaspoons smoked paprika*
 - 1 teaspoon dried oregano
-- 1 large can (28 ounces) or 2 small cans (15 ounces each) diced tomatoes**, with their juices
+- 1 teaspon cayenne pepper or 3 serrano peppers
+- 1 large can (28 ounces) or 2 small cans (15 ounces each) crushed tomatoes**, with their juices
 - 2 cans (15 ounces each) black beans, rinsed and drained
 - 1 can (15 ounces) pinto beans, rinsed and drained
 - 2 cups vegetable broth or water
