@@ -2,11 +2,11 @@
 
 **Ingredients**
 _____
-- 2 C dry brown lentils
-- 4 C water
+- 1 C dry brown lentils
+- 1 3/4 C water
 - 4 oz tomato sauce
 - 1 tsp each - salt, garlic powder, chili powder and onion powder
-- 1/2 tsp cumin
+- 2 tsp cumin
 
 **Directions**
 _____
